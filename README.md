@@ -16,4 +16,3 @@ Will be back soon with some more tricks and hacks to rock your next event!
 Please share your views/event hacks in the comments below. What should be included in this list? I would love to hear from new and old MSPs about their experience, and then everything can be compiled in a blog post :)
 
 Cheers and all the best!
-
